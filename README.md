@@ -1,1 +1,0 @@
-# Chislen-Metodi
